@@ -3,7 +3,7 @@ Type your name, your favorite animal on any of the line below. When you are done
 
 1. _
 2. _
-3. _
+3. Jeremias Garcia, Cat
 4. _
 5. _
 6. _
