@@ -19,7 +19,7 @@ Type your name, your favorite animal on any of the line below. When you are done
 11. _
 12. _
 13. _
-14. _
+14. Kimberly Chanchavac, Dog
 15. _
 16. _
 17. _
